@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lolch1kOne
+- 👀 I’m interested in Programs for system optimization
+- 🌱 I’m currently learning System Administrator
+- 📫 How to reach me Lolch1kOne@gmail.com
+- ⚡ Fun fact: I can rarely reply to emails because there is a lot of spam
